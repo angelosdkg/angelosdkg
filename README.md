@@ -1,5 +1,5 @@
 # 💫 About Me:
-<br>- 👋 Hi, I’m @jemadux<br>- 👀 I’m comming from Thessaloniki 🇬🇷 but hope relocate to 🇺🇬 <br>- 💞️ I am in love with linux  <br>- 🎯 To be better person that the person I was yesterday <br>
+<br>- 👋 Hi, I’m @angelosdkg<br>- 👀 I’m comming from Thessaloniki 🇬🇷 but hope relocate to 🇺🇬 <br>- 💞️ I am in love with linux  <br>- 🎯 To be better person that the person I was yesterday <br>
 
 
 ## 🌐 Socials:
